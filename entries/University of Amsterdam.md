@@ -1,0 +1,1 @@
+The University of Amsterdam is ambitious, creative and committed: a leader in international science and a partner in innovation, the UvA has been inspiring generations since 1632.
